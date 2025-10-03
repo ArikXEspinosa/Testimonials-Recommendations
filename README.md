@@ -19,5 +19,5 @@ Please note: Personal names have been withheld or erased to protect privacy.
 -  Professor, (University of Wisconsin- Parkside)
 *" He was a student of mine in several courses at UW-Parkside, and he consistently performed well and showed a strong commitment to learning. He also worked on a community-based project for the Women’s Resource Center by working on a team to redesign their website. Arik is thoughtful, hardworking, and capable. I believe he will be successful and contribute positively to your graduate program."*
 
--  Network Manager, (KUSD):**  
+-  Network Manager, (KUSD): 
 *" I have had the pleasure of working with Arik for the past three years in my role as Network Manager, and I have been consistently impressed by his technical expertise, initiative, and passion for IT security. During his time with our team, Arik volunteered to assist our network team in a district-wide switch replacement project, involving over 500 switches across 40 schools. His reliability and collaborative spirit were instrumental in the success of this initiative. Arik consistently goes above and beyond, traveling to various buildings to support and train his peers. He demonstrates a strong commitment to continuous learning, staying current with cybersecurity trends and sharing valuable insights with our team."*
