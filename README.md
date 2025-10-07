@@ -9,7 +9,7 @@ Please note: Personal names have been withheld or erased to protect privacy.
 -  "Arik is always thinking of ways to help, even before I know I have a problem. Thank you for supporting all staff and students, especially during testing!"
 -  "Arik goes above and beyond to make sure students and Staff at the Trail are taken care of. He always responds quickly and finds a solution to our many tech requests. Thanks Arik!"
 
-### Pasted Evalutions
+### Pasted Evaluations
 
 - Supervisor: "Arik has shown significant growth this year in retaining skills, taking initiative, and staying committed to his goal of becoming a better communicator. While staff understand the importance of submitting helpdesk tickets, we also rely on them to meet this expectation and Arik has helped reinforce that. He has made great strides in becoming a team player, branching out into new projects, helping out at other buildings and demonstrating a strong desire to advance his career here at KUSD. He is the first to ask if there is anything else he can help with and took the idea of a small network mapping project and ran with it. The West region is now nearly 100% mapped, which will be a major asset during the next network upgrade. Keep up the great work!"
 - Supervisor: "Arik has done an excellent job addressing tickets at Indian Trail. While the ticket process could be utilized more extensively, I understand it's a challenge to get staff to use it. It's evident from the evolving nature of Arik's questions throughout the year that he has gained a greater knowledge of things and has become more comfortable at Indian Trail. Arik is always very responsive and addresses whatever task he is asked to do. Keep up the great work Arik!"
